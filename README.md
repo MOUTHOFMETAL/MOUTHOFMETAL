@@ -75,12 +75,19 @@ OHHHHHH!!!!OH GODDD!!!!!!!!OHHHHH!!!!HURRKKKK
 ![image](https://github.com/user-attachments/assets/2f8fc14b-cc2b-415f-aea2-fae096503d70)
 
 
-
-![image](https://github.com/user-attachments/assets/bdb0f937-a2e6-4e50-9bdc-0029b35fe134)
-
+![image](https://github.com/user-attachments/assets/ba9d976a-3284-4d84-b51f-d02d3313752e)
 
 
-![image](https://github.com/user-attachments/assets/26b64cea-6751-4831-ae8a-e9379803cabe) 
+![image](https://github.com/user-attachments/assets/3f00f4b7-8821-42c4-b2bb-33668865dae0)
+
+![image](https://github.com/user-attachments/assets/493bdf5a-978c-4e97-8d53-8741887cd410)
+
+
+![image](https://github.com/user-attachments/assets/dbe246e2-6af2-4c29-b7ad-9ea3dbf9842d)
+
+
+![image](https://github.com/user-attachments/assets/1a537e61-1c04-41b3-8dbe-4a20b57dcd86)
+
 
 
 :- 3 !!!!
