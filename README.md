@@ -56,7 +56,13 @@ OHHHHHH!!!!OH GODDD!!!!!!!!OHHHHH!!!!HURRKKKK
 ![image](https://github.com/user-attachments/assets/d77890ab-0fbe-4ba4-90ab-18c08df77f7a)
 
 
+![image](https://github.com/user-attachments/assets/1ef8be98-120c-4e0a-a6b8-65d3fbbfe129)
+
+
 ![image](https://github.com/user-attachments/assets/50fe89c2-722e-4c45-9e44-960ed5c159a3)
+
+
+![image](https://github.com/user-attachments/assets/6ac4c549-0f71-4682-8383-6a9cb15a9eb7)
 
 
 ![image](https://github.com/user-attachments/assets/091ee256-59fb-4870-92a6-bbe41a45fd64)
@@ -69,6 +75,7 @@ OHHHHHH!!!!OH GODDD!!!!!!!!OHHHHH!!!!HURRKKKK
 
 
 
+![image](https://github.com/user-attachments/assets/bdb0f937-a2e6-4e50-9bdc-0029b35fe134)
 
 
 
