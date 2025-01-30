@@ -47,6 +47,29 @@ OHHHHHH!!!!OH GODDD!!!!!!!!OHHHHH!!!!HURRKKKK
 
 ![image](https://github.com/user-attachments/assets/d8ae81b0-41a8-4c86-806e-1b1b883210c2)
 
+![image](https://github.com/user-attachments/assets/036a881a-010c-41d1-8f1c-978f9360c14a)
+
+
+![image](https://github.com/user-attachments/assets/120c1bc8-c673-4779-b0c7-c3e359045550)
+
+
+![image](https://github.com/user-attachments/assets/d77890ab-0fbe-4ba4-90ab-18c08df77f7a)
+
+
+![image](https://github.com/user-attachments/assets/50fe89c2-722e-4c45-9e44-960ed5c159a3)
+
+
+![image](https://github.com/user-attachments/assets/091ee256-59fb-4870-92a6-bbe41a45fd64)
+
+
+![image](https://github.com/user-attachments/assets/17a1a411-0bb9-4f62-96aa-3d393d7a48fe)
+
+
+![image](https://github.com/user-attachments/assets/2f8fc14b-cc2b-415f-aea2-fae096503d70)
+
+
+
+
 
 
 ![image](https://github.com/user-attachments/assets/26b64cea-6751-4831-ae8a-e9379803cabe) 
