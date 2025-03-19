@@ -182,7 +182,7 @@ LICK MY PLATE !
 
 ![image](https://github.com/user-attachments/assets/22d44430-c42d-4dd7-852a-ed721cbbf38a)
 
-THANKS 4 PEEPING. < : 3
+OH MY GOD... THIS IS GONNA BE A GOOD DAY. 🐾
 
 <!--**MOUTHOFMETAL/MOUTHOFMETAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
