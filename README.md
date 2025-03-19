@@ -43,6 +43,7 @@ LICK MY PLATE !
 
 
 
+![image](https://github.com/user-attachments/assets/e6c6e1d0-6b69-4163-9686-1c73b71e6aae)
 
 
 
@@ -101,8 +102,42 @@ LICK MY PLATE !
 ![image](https://github.com/user-attachments/assets/0311a58a-34a2-434c-a530-0a60e16bcc38)
 
 
-<!--
-**MOUTHOFMETAL/MOUTHOFMETAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![image](https://github.com/user-attachments/assets/904f107e-97c3-4bf4-bb43-d6a29cef3983)
+
+
+![image](https://github.com/user-attachments/assets/aa58d321-5f62-44fb-96a6-4d73c8d2a180)
+
+
+![image](https://github.com/user-attachments/assets/83008787-da6b-4856-a7df-eb4cf3bc2625)
+
+
+![image](https://github.com/user-attachments/assets/a98bddf1-2a15-4d36-9fcf-86bbd0b2ed03)
+
+
+![image](https://github.com/user-attachments/assets/d436ca51-e709-42f5-88fd-6232816da063)
+
+
+![image](https://github.com/user-attachments/assets/11dfd6cd-1ff5-4940-b7a8-7dde164dc93c)
+
+
+![image](https://github.com/user-attachments/assets/0a565ad8-6b85-4cad-9e1e-973425f4f34a)
+
+
+![image](https://github.com/user-attachments/assets/e1a694b0-d0ce-42c1-aa89-990325bd88f7)
+
+
+![image](https://github.com/user-attachments/assets/a8064934-ebbc-46c6-aaab-57c6df1db785)
+
+
+![image](https://github.com/user-attachments/assets/4537e3b5-9acc-401c-bb05-38d9a3a9e18e)
+
+
+![image](https://github.com/user-attachments/assets/b3576c4c-cc21-4b84-9d76-95be9467e518)
+
+
+![image](https://github.com/user-attachments/assets/6edc6ef4-edf9-4b2c-b0ea-72306c079ddd)
+
+<!--**MOUTHOFMETAL/MOUTHOFMETAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
