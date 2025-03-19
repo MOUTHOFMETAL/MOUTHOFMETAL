@@ -158,8 +158,16 @@ LICK MY PLATE !
 ![image](https://github.com/user-attachments/assets/926d481b-b07b-4e5b-949c-b1c364f0664f)
 
 
+![image](https://github.com/user-attachments/assets/6ca5b3a1-8429-4934-8461-23267ea6ce1e)
+
+![image](https://github.com/user-attachments/assets/e96d78c8-a112-4a66-be4e-f59f9a4b3144)
+
+![image](https://github.com/user-attachments/assets/f62ed083-b16b-46a8-8280-1d0c4fb8b50b)
 
 
+![image](https://github.com/user-attachments/assets/22d44430-c42d-4dd7-852a-ed721cbbf38a)
+
+THANKS 4 PEEPING. < : 3
 
 <!--**MOUTHOFMETAL/MOUTHOFMETAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
