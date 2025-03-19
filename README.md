@@ -93,7 +93,11 @@ LICK MY PLATE !
 
 ![image](https://github.com/user-attachments/assets/1a537e61-1c04-41b3-8dbe-4a20b57dcd86)
 
-* Tickles you a little bit ... ,' ) 
+* Blink blink ... ,' )
+
+
+![image](https://github.com/user-attachments/assets/b1c51cd5-268f-4ef3-9ae0-dc6cd627a2a4)
+
 
 ![image](https://github.com/user-attachments/assets/f355da8b-7175-4dc2-8534-e00fb297b83c)
 
@@ -142,6 +146,20 @@ LICK MY PLATE !
 
 
 ![image](https://github.com/user-attachments/assets/6edc6ef4-edf9-4b2c-b0ea-72306c079ddd)
+
+
+![image](https://github.com/user-attachments/assets/7f052500-bcc4-4a5a-b13b-c4f804ae6ee2)
+
+![image](https://github.com/user-attachments/assets/1797f006-5ab6-4f11-91b3-96e6cf60aef1)
+
+![image](https://github.com/user-attachments/assets/cde76a26-28d9-40ad-93ac-983676d1b811)
+
+
+![image](https://github.com/user-attachments/assets/926d481b-b07b-4e5b-949c-b1c364f0664f)
+
+
+
+
 
 <!--**MOUTHOFMETAL/MOUTHOFMETAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
