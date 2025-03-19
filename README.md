@@ -93,7 +93,7 @@ LICK MY PLATE !
 
 ![image](https://github.com/user-attachments/assets/1a537e61-1c04-41b3-8dbe-4a20b57dcd86)
 
-* Blink blink ... ,' )
+⊹₊⟡⋆ BLINK BLINK ... ,' ) .𖥔 ݁ ˖
 
 
 ![image](https://github.com/user-attachments/assets/b1c51cd5-268f-4ef3-9ae0-dc6cd627a2a4)
