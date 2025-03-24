@@ -5,13 +5,13 @@ INT REGARDLESS. (SORRY FOR SLOW REPLIES/I PREFER W2i.)
 
 C+H FRIENDLY. I DONT CARE IF YOU SIT ON ME. I ENCOURAGE IT.
 
-HUGE METALOCALYPSE / MY BLOODY VALENTINE / LEATHERFACE / CREEP + THE CREEP TAPES / HOUSE OF 1000 CORPSES FAN AS OF LATE.
+HUGE **METALOCALYPSE** / MY BLOODY VALENTINE / LEATHERFACE / CREEP + THE CREEP TAPES / **HOUSE OF 1000 CORPSES** / **OUTLAST** FAN AS OF LATE.
 
 I ♥️ CAIN , DURDEN , REIGEN , & LOGAN.
 
 CRINGE & I LOVE IT.
 
-LICK MY PLATE !
+***LICK MY PLATE !***
 
 
 ![image](https://github.com/user-attachments/assets/1b68b0b9-acf1-4ce7-9346-a772d02abc82)
@@ -93,7 +93,7 @@ LICK MY PLATE !
 
 ![image](https://github.com/user-attachments/assets/1a537e61-1c04-41b3-8dbe-4a20b57dcd86)
 
- BLINK... BLINK ... ⌖
+ *BLINK ...* *BLINK ...* ⌖
 
 
 ![image](https://github.com/user-attachments/assets/b1c51cd5-268f-4ef3-9ae0-dc6cd627a2a4)
