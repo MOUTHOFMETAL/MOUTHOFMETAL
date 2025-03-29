@@ -9,7 +9,7 @@ HUGE **METALOCALYPSE** / MY BLOODY VALENTINE / LEATHERFACE / CREEP + THE CREEP T
 
 I 🫀 CAIN , DURDEN , REIGEN , & LOGAN.
 
-***LICK MY PLATE !***
+***¡ Ǝ⊥∀˥Ԁ ⅄W ⋊ƆI˥***
 
 
 ╭──╯ . . . . . . .    𓏵    . . . . .  . . ╰──╮
