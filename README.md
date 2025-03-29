@@ -14,7 +14,7 @@ CRINGE & I LOVE IT.
 ***LICK MY PLATE !***
 
 
-╭──╯ . . . . . . . .   𓏵    . . . . . . . . ╰──╮
+╭──╯ . . . . . . .    𓏵    . . . . .  . . ╰──╮
 
 ![image](https://github.com/user-attachments/assets/6b2ff4a9-6c71-4eaf-b386-d3e5ede8da9f)
 
