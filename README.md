@@ -1,13 +1,14 @@
-## HI, IM SIDNEY
-USUALLY OFFTAB/STUDYING.
+## 𝘏𝘐, 𝘐𝘔 𝘚𝘐𝘋𝘕𝘌𝘠
+𝘜𝘚𝘜𝘈𝘓𝘓𝘠 𝘖𝘍𝘍𝘛𝘈𝘉/𝘚𝘛𝘜𝘋𝘠𝘐𝘕𝘎.
 
-INT REGARDLESS. (SORRY FOR SLOW REPLIES/I PREFER **W2i.**) APPROACH ME FIRST AND I'LL LOVE YOU WITH ALL MY PONY HEART. 
+𝘐𝘕𝘛 𝘙𝘌𝘎𝘈𝘙𝘋𝘓𝘌𝘚𝘚. (𝘚𝘖𝘙𝘙𝘠 𝘍𝘖𝘙 𝘚𝘓𝘖𝘞 𝘙𝘌𝘗𝘓𝘐𝘌𝘚/𝘐 𝘗𝘙𝘌𝘍𝘌𝘙 **𝘞2𝘪.**) 𝘈𝘗𝘗𝘙𝘖𝘈𝘊𝘏 𝘔𝘌 𝘍𝘐𝘙𝘚𝘛 𝘈𝘕𝘋 𝘐'𝘓𝘓 𝘓𝘖𝘝𝘌 𝘠𝘖𝘜 𝘞𝘐𝘛𝘏 𝘈𝘓𝘓 𝘔𝘠 𝘗𝘖𝘕𝘠 𝘏𝘌𝘈𝘙𝘛. 
 
-**C+H FRIENDLY.** I DONT CARE IF YOU SIT ON ME. I **ENCOURAGE** IT.
+**𝘊+𝘏 𝘍𝘙𝘐𝘌𝘕𝘋𝘓𝘠.** 𝘐 𝘋𝘖𝘕𝘛 𝘊𝘈𝘙𝘌 𝘐𝘍 𝘠𝘖𝘜 𝘚𝘐𝘛 𝘖𝘕 𝘔𝘌. 𝘐 **𝘌𝘕𝘊𝘖𝘜𝘙𝘈𝘎𝘌** 𝘐𝘛.
 
-HUGE **METALOCALYPSE** / MY BLOODY VALENTINE / LEATHERFACE / CREEP + THE CREEP TAPES / **HOUSE OF 1000 CORPSES** / **OUTLAST + OUTLAST TRIALS** FAN AS OF LATE.
+𝘏𝘜𝘎𝘌 **𝘔𝘌𝘛𝘈𝘓𝘖𝘊𝘈𝘓𝘠𝘗𝘚𝘌** / 𝘔𝘠 𝘉𝘓𝘖𝘖𝘋𝘠 𝘝𝘈𝘓𝘌𝘕𝘛𝘐𝘕𝘌 / 𝘓𝘌𝘈𝘛𝘏𝘌𝘙𝘍𝘈𝘊𝘌 / 𝘊𝘙𝘌𝘌𝘗 + 𝘛𝘏𝘌 𝘊𝘙𝘌𝘌𝘗 𝘛𝘈𝘗𝘌𝘚 / **𝘏𝘖𝘜𝘚𝘌 𝘖𝘍 1000 𝘊𝘖𝘙𝘗𝘚𝘌𝘚** / **𝘖𝘜𝘛𝘓𝘈𝘚𝘛 + 𝘖𝘜𝘛𝘓𝘈𝘚𝘛 𝘛𝘙𝘐𝘈𝘓𝘚** 𝘍𝘈𝘕 𝘈𝘚 𝘖𝘍 𝘓𝘈𝘛𝘌.
 
-I 🫀 CAIN , DURDEN , REIGEN , & LOGAN.
+𝘐 🫀 𝘊𝘈𝘐𝘕 , 𝘋𝘜𝘙𝘋𝘌𝘕 , 𝘙𝘌𝘐𝘎𝘌𝘕 , & 𝘓𝘖𝘎𝘈𝘕.
+
 
 ***¡ Ǝ⊥∀˥Ԁ ⅄W ⋊ƆI˥***
 
