@@ -39,7 +39,7 @@
 
 ╭──╯ . . . . . . .    𓏵    . . . . .  . . ╰──╮
 
-![image](https://github.com/user-attachments/assets/1b68b0b9-acf1-4ce7-9346-a772d02abc82)
+
 
 ![image](https://github.com/user-attachments/assets/de11797d-862f-405f-9e6f-47266f62e29f)
 
