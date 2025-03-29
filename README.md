@@ -22,6 +22,7 @@ CRINGE & I LOVE IT.
 
 ![image](https://github.com/user-attachments/assets/eab4fdee-ad91-4e1c-8397-8118c9847532)
 
+![image](https://github.com/user-attachments/assets/058422ad-babb-4a26-9a6c-d0b6a9bd92dd)
 
 
 ![image](https://github.com/user-attachments/assets/1b68b0b9-acf1-4ce7-9346-a772d02abc82)
