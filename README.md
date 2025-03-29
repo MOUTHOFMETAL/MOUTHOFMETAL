@@ -28,6 +28,9 @@ CRINGE & I LOVE IT.
 ![image](https://github.com/user-attachments/assets/1b68b0b9-acf1-4ce7-9346-a772d02abc82)
 
 
+![image](https://github.com/user-attachments/assets/5378e09f-f485-4d51-9320-732fd8885ce1)![image](https://github.com/user-attachments/assets/4e707d02-bd7b-47ec-aebb-21c4aa532d54)
+
+
 
 ![image](https://github.com/user-attachments/assets/de11797d-862f-405f-9e6f-47266f62e29f)
 
