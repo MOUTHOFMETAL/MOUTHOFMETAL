@@ -29,7 +29,14 @@ CRINGE & I LOVE IT.
 
 
 
+![image](https://github.com/user-attachments/assets/04cd6db2-e5db-43ea-947d-34f3aa5f0adb)
 
+![image](https://github.com/user-attachments/assets/1a1f934d-1d8b-41a6-80c3-1f4f3e656766)
+
+
+╭──╯ . . . . . . .    𓏵    . . . . .  . . ╰──╮
+
+![image](https://github.com/user-attachments/assets/da7e46b2-37c8-4214-8fa9-d210f08e28ef)
 
 
 ![image](https://github.com/user-attachments/assets/de11797d-862f-405f-9e6f-47266f62e29f)
